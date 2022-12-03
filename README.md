@@ -1,0 +1,2 @@
+# critgallery.com
+wallpapers area
